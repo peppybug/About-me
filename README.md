@@ -5,7 +5,9 @@ Hey, I'm Olivier aka Peppy! I'm a discord degenerate and coder. I'm joyful and p
 I love gaming and play games like elden ring. Mostly active on discord so if you want you can contact me by dming ojanssen254
 
 
-![image](https://github.com/user-attachments/assets/855966f4-2d19-463a-99a9-cdf72d356ab1) ![image](https://github.com/user-attachments/assets/d56227f0-0dfc-4505-aba5-77c491a2a4f6) ![image](https://github.com/user-attachments/assets/94c70c5f-d811-4a2a-8f4c-0c4ac1c532a8)
+![image](https://github.com/user-attachments/assets/855966f4-2d19-463a-99a9-cdf72d356ab1) 
+![image](https://github.com/user-attachments/assets/d56227f0-0dfc-4505-aba5-77c491a2a4f6) 
+![image](https://github.com/user-attachments/assets/94c70c5f-d811-4a2a-8f4c-0c4ac1c532a8)
 
 
 
