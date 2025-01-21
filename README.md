@@ -10,13 +10,12 @@ I love gaming and play games like elden ring. Mostly active on discord so if you
                                                                 #####
                                                                 #######
                    #                                            ##O#O##
-  ######          ###                                           #VVVVV#
+
     ##             #                                          ##  VVV  ##
     ##         ###    ### ####   ###    ###  ##### #####     #          ##
     ##        #  ##    ###    ##  ##     ##    ##   ##      #            ##
     ##       #   ##    ##     ##  ##     ##      ###        #            ###
     ##          ###    ##     ##  ##     ##      ###       QQ#           ##Q
     ##       # ###     ##     ##  ##     ##     ## ##    QQQQQQ#       #QQQQQQ
-    ##      ## ### #   ##     ##  ###   ###    ##   ##   QQQQQQQ#     #QQQQQQQ
-  ############  ###   ####   ####   #### ### ##### #####   QQQQQ#######QQQQQ
+    
 
